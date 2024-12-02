@@ -6,4 +6,4 @@ Anyways, this whole github is still a
 big wip so expect a links, hopefully
 a strawpage, patreon, ect.  Thats all for now
 . 𓎟ᛝ𓎟𓎟　†　𓎟𓎟ᛝ𓎟 ྀི
-<imghttps://pin.it/3LAPJkQJ8>
+
